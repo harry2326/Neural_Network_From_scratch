@@ -3,7 +3,7 @@
 
 ##  Explanation Video
 
- [Watch Full Explanation](https://your-video-link-here)
+ [Watch Full Explanation](https://drive.google.com/drive/folders/1XWGO21R0gZEJsCqJ9mOqCCgMk2HzNuxt?usp=sharing)
 
 ---
 
